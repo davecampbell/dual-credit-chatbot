@@ -35,7 +35,11 @@ State funding (Career Tech Ed and General Ed grants) covers Juniors and Seniors.
 - Enter college with previously earned credits, **reducing financial burden**
 - Verified pathway to higher education and college preparedness
 
-### HOW TO SUPPORT
+### IMPACT ON WHSAA SCHOLARSHIPS
+- The Sophomore Scholars program has no direct impact on the traditional WHSAA Scholarships
+- WHSAA Scholarships is a separate program targeting graduating seniors and uses a distinct funding channel
+
+### HOW TO SUPPORT THE SOPHOMORE SCHOLARS PROGRAM
 **Donate online:** https://waggeneralumni.org/sophomore-scholars-program#donate
 
 **Contact:** WHS Alumni Association via https://waggeneralumni.org/contact/
