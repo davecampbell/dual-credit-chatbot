@@ -34,7 +34,6 @@ State funding (Career Tech Ed and General Ed grants) covers Juniors and Seniors.
 - Students in dual-credit programs attend college at **higher rates** than those who don't
 - Enter college with previously earned credits, **reducing financial burden**
 - Verified pathway to higher education and college preparedness
-- Replaces traditional WHSAA scholarships to support more students (50 vs. 5-7)
 
 ### HOW TO SUPPORT
 **Donate online:** https://waggeneralumni.org/sophomore-scholars-program#donate
